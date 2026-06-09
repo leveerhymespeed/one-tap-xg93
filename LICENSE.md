@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap new Scripts, the #1 Script. Includes god mode and custom skins for unbeatable performance.
 
 
 
